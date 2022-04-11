@@ -1,1 +1,1 @@
-this is soory-2 for pull
+this is story-2 for pull
